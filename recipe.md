@@ -7,7 +7,6 @@ Ingredientes
 - Zumo de limón
 - Cilantro fresco
 - Sal
-- Sandía 
 
 
 MMMMMMM me encanta!!!!!
